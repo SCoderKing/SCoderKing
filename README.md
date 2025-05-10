@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on new skills 
 - 📫 How to reach me ...
-- 😄 Pronouns: ...
 - ⚡ Fun fact: Side by i am video editor 
 
 <!---
